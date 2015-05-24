@@ -17,6 +17,8 @@ _**Available July 2015, a complete reprint of DeadBase XI (the last complete edi
 - The Dead
 - Furthur
 
+----
+_John W Scott | Stu Nixon | Mike Dolgushkin_
+
 _**Celebrating 50 Years of the Grateful Dead**_
 
-_John W Scott | Stu Nixon | Mike Dolgushkin_
